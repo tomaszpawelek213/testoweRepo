@@ -1,0 +1,1 @@
+poszła jola do przedzzkola
